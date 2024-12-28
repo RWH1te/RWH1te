@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @RWH1te
-- 👀 I’m interested in gal
+- 👀 I’m interested in d
 - I want to have a meaningful life
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me www88919587@gmail.com
